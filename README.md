@@ -1,5 +1,7 @@
 # Nuevos_Habitos
 
+Tener mejores hábitos, es la mejor forma de mejorar tu vida hoy y para siempre. Pero, seguramente eso ya lo sabes. El problema empieza cuando no sabes cómo lograrlo, ni con qué hábito comenzar.
+
 A continuación, a prenderas a utilizar trucos para cambiar o crear nuevos hábitos en mundo profesional o personal. Con las herramientas 
 que vamos aprender a utilizar para desarrollar un mejor hábito en tu vida cotidiana. Existe varios hábitos como: El Hábito de pensar: 
 cuando una persona tiene un problema está analizando y pensando la solución a su inconveniente. El habito Emocional existe persona que al 
@@ -21,4 +23,10 @@ RECORDATORIO -------------------> RUTINA ----------------------------------> REC
 
 Como cambiar o creas nuevos hábitos
 
+Si nuestra mente consciente tuviera que encargarse de procesar todas las tareas que realizamos cada día estaría chamuscada y no podría encargarse de elegir ni de tomar decisiones importantes.
 
+Es por esto que las acciones que se realizan de manera recurrente se terminan automatizando y pasan a ser tarea de la mente inconsciente, esa que hace que las cosas ocurran casi sin darte cuenta.
+
+Los resultados que obtengas en tu vida van a depender casi en su totalidad de las acciones que realices diariamente.
+
+*El éxito no es cuestión de suerte es cuestión de hábitos*
